@@ -1,6 +1,6 @@
 # **Club Documents**
 
-**This is a archive of important documents of that outline the TKUCSC. With are documents on meetings, processes, etiquette, etc. **
+**This is a archive of important documents of that outline the TKUCSC. With are documents on meetings, processes, etiquette, etc.**
 
 ## See Also
 
